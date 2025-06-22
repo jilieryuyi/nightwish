@@ -8,20 +8,20 @@
 
 # 资源列表
 
-[2020 - HUMAN. II NATURE.rar 933 MB](https://eagles-resource.netlify.app/)
+[2020 - HUMAN. II NATURE.rar 933 MB](https://nightwish-resource.netlify.app/)
 
-[2015 - Endless Forms Most Beautiful.rar 927 MB](https://eagles-resource.netlify.app/)
+[2015 - Endless Forms Most Beautiful.rar 927 MB](https://nightwish-resource.netlify.app/)
 
-[2011 - Imaginaerum.rar 1.01 GB](https://eagles-resource.netlify.app/)
+[2011 - Imaginaerum.rar 1.01 GB](https://nightwish-resource.netlify.app/)
 
-[2007 - Dark Passion Play.rar 1.02 GB](https://eagles-resource.netlify.app/)
+[2007 - Dark Passion Play.rar 1.02 GB](https://nightwish-resource.netlify.app/)
 
-[2004 - Once.rar 430 MB](https://eagles-resource.netlify.app/)
+[2004 - Once.rar 430 MB](https://nightwish-resource.netlify.app/)
 
-[2002 - Century Child.rar 523 MB](https://eagles-resource.netlify.app/)
+[2002 - Century Child.rar 523 MB](https://nightwish-resource.netlify.app/)
 
-[2000 - Wishmaster.rar 477 MB](https://eagles-resource.netlify.app/)
+[2000 - Wishmaster.rar 477 MB](https://nightwish-resource.netlify.app/)
 
-[1998 - Oceanborn-flac.rar 546 MB](https://eagles-resource.netlify.app/)
+[1998 - Oceanborn-flac.rar 546 MB](https://nightwish-resource.netlify.app/)
 
-[1997 - Angels Fall First-flac.rar 504 MB](https://eagles-resource.netlify.app/)
+[1997 - Angels Fall First-flac.rar 504 MB](https://nightwish-resource.netlify.app/)
