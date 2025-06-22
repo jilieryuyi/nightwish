@@ -1,10 +1,10 @@
-# 老鹰乐队经典作品下载 | Eagles Greatest Hits Downloads
+# Nightwish - 无损专辑下载 | 音乐资源库
 
-下载老鹰乐队(Eagles)经典音视频作品合集，包含《加州旅馆》等不朽名曲高清资源
+获取Nightwish乐队无损专辑下载服务。发现所有专辑、歌词和乐队历史。Official lossless music downloads for Nightwish.
 
 # keywords
 
- 老鹰乐队,Eagles下载,经典摇滚,音乐下载,加州旅馆,乐队历史
+ Nightwish, 夜愿, 无损音乐, 专辑下载, 摇滚乐队, FLAC下载, 交响金属, 塔嘉·图伦尼, 地板音乐
 
 # 资源列表
 
